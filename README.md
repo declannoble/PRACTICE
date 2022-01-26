@@ -1,1 +1,1 @@
-PRACTICE FOR SCHOOL 
+practiced for schoooooool
